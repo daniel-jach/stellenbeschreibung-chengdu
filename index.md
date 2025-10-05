@@ -1,5 +1,3 @@
-# Attraktive Position als DAAD-Lektor/in in Chengdu (China) vakant
-
 Liebe Kolleginnen und Kollegen, 
 
 werden Sie Teil eines **kulturell und akademisch spannenden** Umfelds in einer der **faszinierendsten** Städte Chinas! An der **Southwest Jiaotong University** in **Chengdu** (China) ist eine **äußerst attraktive Position als DAAD-Lektor/in vakant**.
@@ -66,3 +64,4 @@ Die Abteilung besteht aus zehn chinesischen Lehrkräften und einem DAAD-Lektor, 
 
 
 Studierende und Lehrende der Abteilung organisieren vielfältige außercurriculare Aktivitäten, darunter Theateraufführungen und Sprachwettbewerbe, regelmäßige Film- und Spieleabende sowie eine Weihnachtsfeier. Außerdem gehören Werksbesuche bei Unternehmen und andere Projekte zur Berufsorientierung zu den Aktivitäten, wie beispielsweise die Teilnahme an der EducationPlus-Bildungsmesse oder das DAAD JobLab im Sommer 2025. Seit dem Wintersemester 2024 unterhält die Abteilung zudem ein Studierendenaustauschprogramm mit der Sinologie der Universität Würzburg.
+

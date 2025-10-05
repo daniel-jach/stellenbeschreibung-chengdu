@@ -12,7 +12,7 @@ Das Wichtigste:
 * **Hohe Vergütung** (6000 EUR/Monat brutto bei nur geringen Abgaben und Lebenshaltungskosten)
 * Berufliches Profil entwickeln für künftige **Karrierechancen**
 
-Ich hatte diese Position von 2021 bis 2025 inne. Da die Bewerberlage des DAAD in China angespannt ist und insbesondere an außerhalb Chinas eher unbekannten Standorten wie Chengdu Bewerber fehlen, möchte ich hiermit zur Wiederbesetzung der Position beitragen.
+Ich hatte diese Position von 2021 bis 2025 inne. Da die Bewerberlage des DAAD in China angespannt ist und insbesondere an außerhalb Chinas eher unbekannten Standorten wie Chengdu Bewerber fehlen, möchte ich hiermit zur Wiederbesetzung der Position beitragen. <span style="color: red; font-weight: bold;">Ich bin kein Mitarbeiter des DAAD und auch nicht vom DAAD mit der Bewerbung der Position beauftragt. Alle Angaben basieren allein auf meiner persönlichen Erfahrung</span>.
 
 Als DAAD-Lektor in Chengdu erwarten Sie ein **spannendes Leben** in einer **modernen Großstadt** mit **historischem Gedächtnis** und **atemberaubender Natur**, **hervorragende Unterstützung** durch die Universität, **gut ausgestattete Klassenzimmer**, **große Freiheit** bei der Gestaltung von Unterricht und außerunterrichtlichen Projekten, **Freiraum** für Forschungsarbeiten und anderen Aktivitäten, **engagierte Studierende**, eine **aktive** deutsche **Community** vor Ort und ein **freundschaftliches** chinaweites **Netzwerk** von DAAD-Lektoren.
 
@@ -68,6 +68,7 @@ Die Abteilung besteht aus zehn chinesischen Lehrkräften und einem DAAD-Lektor, 
 
 
 Studierende und Lehrende der Abteilung organisieren vielfältige außercurriculare Aktivitäten, darunter Theateraufführungen und Sprachwettbewerbe, regelmäßige Film- und Spieleabende sowie eine Weihnachtsfeier. Außerdem gehören Werksbesuche bei Unternehmen und andere Projekte zur Berufsorientierung zu den Aktivitäten, wie beispielsweise die Teilnahme an der EducationPlus-Bildungsmesse oder das DAAD JobLab im Sommer 2025. Seit dem Wintersemester 2024 unterhält die Abteilung zudem ein Studierendenaustauschprogramm mit der Sinologie der Universität Würzburg.
+
 
 
 

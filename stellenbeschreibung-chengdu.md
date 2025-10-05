@@ -64,4 +64,5 @@ Seit dem Beginn des 20. Jahrhunderts wird an der SWJTU Deutsch als Fremdsprache 
 
 Die Abteilung besteht aus zehn chinesischen Lehrkräften und einem DAAD-Lektor, die sich engagiert für die Ausbildung der Studierenden einsetzen. Die Forschungsschwerpunkte der Abteilung liegen in den Bereichen Germanistische Literatur-, Sprach- und Kulturwissenschaft. Im Mai 2023 war unsere Abteilung Gastgeber eines nationalen Symposiums zur didaktischen Ausbildung von Deutschlehrkräften an chinesischen Universitäten.
 
+
 Studierende und Lehrende der Abteilung organisieren vielfältige außercurriculare Aktivitäten, darunter Theateraufführungen und Sprachwettbewerbe, regelmäßige Film- und Spieleabende sowie eine Weihnachtsfeier. Außerdem gehören Werksbesuche bei Unternehmen und andere Projekte zur Berufsorientierung zu den Aktivitäten, wie beispielsweise die Teilnahme an der EducationPlus-Bildungsmesse oder das DAAD JobLab im Sommer 2025. Seit dem Wintersemester 2024 unterhält die Abteilung zudem ein Studierendenaustauschprogramm mit der Sinologie der Universität Würzburg.

@@ -20,6 +20,8 @@ Die kombinierte Vergütung aus DAAD-Stipendium und Ortsgehalt liegt bei etwa **6
 
 Mehr Details zum **Programm, Bewerbungsverfahren und das Bewerbungsportal** finden Sie [hier](https://www.daad.de/de/im-ausland-studieren-forschen-lehren/lehren-im-ausland/freie-lektorate-und-dozenturen/detail/daad-lektorenprogramm-202627-fachlektorate/?lr-id=11&lr-position=&lr-country=&lr-page=1&lr-offset=1).
 
+Bei Fragen zum Leben und Arbeiten in Chengdu kontaktieren Sie mich gern über meine [Webseite](https://daniel-jach.github.io/contact/).
+
 |||
 |---|---|
 |Dauer|5 Jahre|
@@ -66,6 +68,7 @@ Die Abteilung besteht aus zehn chinesischen Lehrkräften und einem DAAD-Lektor, 
 
 
 Studierende und Lehrende der Abteilung organisieren vielfältige außercurriculare Aktivitäten, darunter Theateraufführungen und Sprachwettbewerbe, regelmäßige Film- und Spieleabende sowie eine Weihnachtsfeier. Außerdem gehören Werksbesuche bei Unternehmen und andere Projekte zur Berufsorientierung zu den Aktivitäten, wie beispielsweise die Teilnahme an der EducationPlus-Bildungsmesse oder das DAAD JobLab im Sommer 2025. Seit dem Wintersemester 2024 unterhält die Abteilung zudem ein Studierendenaustauschprogramm mit der Sinologie der Universität Würzburg.
+
 
 
 

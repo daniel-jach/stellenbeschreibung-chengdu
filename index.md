@@ -4,7 +4,7 @@ werden Sie Teil eines **kulturell und akademisch spannenden** Umfelds in einer d
 
 Das Wichtigste:
 
-* Leben in einer der **faszinierendsten** und **vielseitigsten** Städte Chinas
+* Leben in einer der **faszinierendsten** und **vielseitigsten Städte** Chinas
 * **Große Gestaltungsfreiheit** in Lehre, Forschung und bei anderen Projekten
 * Kontakte knüpfen in einer **aktiven internationalen Community**
 * **Hohe Vergütung** (6000 EUR/Monat brutto bei nur geringen Abgaben und Lebenshaltungskosten)
@@ -12,11 +12,11 @@ Das Wichtigste:
 
 Ich hatte diese Position von 2021 bis 2025 inne. Da die Bewerberlage des DAAD in China angespannt ist und insbesondere an außerhalb Chinas eher unbekannten Standorten wie Chengdu Bewerber fehlen, möchte ich hiermit zur Wiederbesetzung der Position beitragen.
 
-Als DAAD-Lektor in Chengdu erwarten Sie ein **spannendes** Leben in einer **modernen** Großstadt mit **historischem** Gedächtnis und **atemberaubender** Natur, **hervorragende** Unterstützung durch die Universität, **gut ausgestattete** Klassenzimmer, **große Freiheit** bei der Gestaltung von Unterricht und außerunterrichtlichen Projekten, **Freiraum** für Forschungsarbeiten und anderen Aktivitäten, **engagierte** Studierende, eine **aktive** deutsche Community vor Ort und ein **freundschaftliches** chinaweites Netzwerk von DAAD-Lektoren.
+Als DAAD-Lektor in Chengdu erwarten Sie ein **spannendes Leben** in einer **modernen Großstadt** mit **historischem Gedächtnis** und **atemberaubender Natur**, **hervorragende Unterstützung** durch die Universität, **gut ausgestattete Klassenzimmer**, **große Freiheit** bei der Gestaltung von Unterricht und außerunterrichtlichen Projekten, **Freiraum** für Forschungsarbeiten und anderen Aktivitäten, **engagierte Studierende**, eine **aktive** deutsche **Community** vor Ort und ein **freundschaftliches** chinaweites **Netzwerk** von DAAD-Lektoren.
 
 Die kombinierte Vergütung aus DAAD-Stipendium und Ortsgehalt liegt bei etwa **6.000 EUR/Monat brutto** bei nur geringen Abgaben. Die Lebenshaltungskosten in Chengdu sind verglichen mit Deutschland und auch innerhalb Chinas relativ gering.
 
-Mehr Details zum Programm, Bewerbungsverfahren und das Bewerbungsportal finden Sie [hier](https://www.daad.de/de/im-ausland-studieren-forschen-lehren/lehren-im-ausland/freie-lektorate-und-dozenturen/detail/daad-lektorenprogramm-202627-fachlektorate/?lr-id=11&lr-position=&lr-country=&lr-page=1&lr-offset=1).
+Mehr Details zum **Programm, Bewerbungsverfahren und das Bewerbungsportal** finden Sie [hier](https://www.daad.de/de/im-ausland-studieren-forschen-lehren/lehren-im-ausland/freie-lektorate-und-dozenturen/detail/daad-lektorenprogramm-202627-fachlektorate/?lr-id=11&lr-position=&lr-country=&lr-page=1&lr-offset=1).
 
 |||
 |---|---|
@@ -64,5 +64,6 @@ Die Abteilung besteht aus zehn chinesischen Lehrkräften und einem DAAD-Lektor, 
 
 
 Studierende und Lehrende der Abteilung organisieren vielfältige außercurriculare Aktivitäten, darunter Theateraufführungen und Sprachwettbewerbe, regelmäßige Film- und Spieleabende sowie eine Weihnachtsfeier. Außerdem gehören Werksbesuche bei Unternehmen und andere Projekte zur Berufsorientierung zu den Aktivitäten, wie beispielsweise die Teilnahme an der EducationPlus-Bildungsmesse oder das DAAD JobLab im Sommer 2025. Seit dem Wintersemester 2024 unterhält die Abteilung zudem ein Studierendenaustauschprogramm mit der Sinologie der Universität Würzburg.
+
 
 
